@@ -12,7 +12,9 @@ THE FACTOR HAS BEEN FINE TUNED TO MAXIFY YOUR SEO SERP RESULTS PAGES.  INCREASIN
 Demos included for the dum-dums.  
 
 THE WAIT IS OVER:  INTERACTIVE DEMOS NOW AVAILABLE!!!
+
 http://jp00p.com/seo2.0/demo/
+
 http://jp00p.com/seo2.0/demo/advanced.html
 
 Good luck.
